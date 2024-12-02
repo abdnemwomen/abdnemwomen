@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Em
+- 👋 Hi, I’m Aberdeen Ethnic Minority Women's Group CIC
 - 👀 I’m interested in learning more about you
 - 🌱 I’m currently here to  support you in your journey...
 
